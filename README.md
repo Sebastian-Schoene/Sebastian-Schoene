@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Sebastian-Schoene
+- 📫 Working at Smart Mechatronics
